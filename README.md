@@ -4,3 +4,10 @@ https://web.archive.org/web/20170704064650/http://serge.marchal.pagesperso-orang
 https://echodelenclume-jp.blogspot.com/2018/02/deces-du-pays-marchal-serge-le-champagne.html
 
 http://kimi.eklablog.com/serge-marchal-parcours-2010-a1844879
+
+Terracotta
+https://www.debaecque.fr/lot/104662/12499212-serge-marchal-xxe-siecleserge
+
+1944-2018
+* Compagnon du devoir met tour de france
+* 
